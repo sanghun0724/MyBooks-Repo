@@ -15,4 +15,4 @@
 2022년 월 일
 # 독서 평가
 -> 
-# [책정보](http://www.yes24.com/Product/Goods/74219491)
+# [책정보](http://www.yes24.com/Product/Goods/5312881)
